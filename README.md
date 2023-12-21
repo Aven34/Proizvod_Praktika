@@ -1,6 +1,8 @@
 # Proizvod_Praktika
 
 
+![image](https://github.com/Aven34/Proizvod_Praktika/assets/123065246/9b8b861a-3de4-49e4-b896-963a6f2c1a52)
+
 ![image](https://github.com/Aven34/Proizvod_Praktika/assets/123065246/669f7899-c56e-46ac-886f-c8923b665823)
 
 
