@@ -5,4 +5,5 @@
 
 
 
-![image](https://github.com/Aven34/Proizvod_Praktika/assets/123065246/2745c4cb-58ad-4423-98f1-ac2e247992c5)
+![image](https://github.com/Aven34/Proizvod_Praktika/assets/123065246/a5a0eb8b-1258-4b36-95c1-cb3e0f2881ab)
+
